@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on opensourse
 - 📫 If you are interested, please contact me by email
 - 🤔 I’m looking for help with ... (Coming soon)
-- 💬 Ask me about ... (Coming soon)
+- 💬 Ask me about anything, I'm happy to help!
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact ... (Coming soon)
 
