@@ -6,9 +6,9 @@
 - 💞️ I’m looking to collaborate on opensourse
 - 📫 If you are interested, please contact me by email
 - 🤔 I’m looking for help with ... (Coming soon)
-- 💬 Ask me about anything, I'm happy to help!
+- 💬 Ask me about anything, I'm happy to help
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact ... (Coming soon)
+- ⚡ Fun fact: I’m not a robot
 
 <!---
 samuhin/samuhin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
